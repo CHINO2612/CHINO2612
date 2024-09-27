@@ -10,5 +10,4 @@
 CHINO2612/CHINO2612 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-$=24,000,000
-5579209149632827
+tarjeta banorte$=10,000//6275350171540135 recibir (27/viernes/2034)(6🕥)
